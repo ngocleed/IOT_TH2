@@ -6,7 +6,7 @@
 **Mã sinh viên:** B23DCCN551 
 
 **Sinh viên:** Lê Duy Ngọc
-**Mã sinh viên:** B23DCCN603
+**Mã sinh viên:** B23DCCN607
 
 **Sinh viên:** Phạm Tuấn Đạt
 **Mã sinh viên:** B23DCCN145
